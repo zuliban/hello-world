@@ -1,2 +1,3 @@
 # hello-world
 stuff
+I don't understand this fucking world.... it's full of crap but at the same time, so much interesting things to blow up my mind that I wonder:  how do I do to absorb as much as I can while alive!....
